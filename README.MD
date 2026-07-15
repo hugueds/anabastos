@@ -13,7 +13,6 @@ Hi, I'm Ana 👩‍💻.
 #### 👉 *[anabastos.dev](https://anabastos.dev/)* 👈
 
 <asjdidjg>
-<:tada:>
 
 <topper>
 
